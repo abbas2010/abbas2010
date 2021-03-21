@@ -13,5 +13,6 @@ Here are some ideas to get you started:
 - 📫 How to reach me: my gmail abdurrahmanabbas2004@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: im indonesia
---> thats it
+--> im new
+
 
